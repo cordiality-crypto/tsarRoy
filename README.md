@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tsarRoy
+- 👀 I’m interested in Cybersecurity, Game-dev, Web-dev, okay, almost everything which seems benefitial to our species...
+- 🌱 I’m currently learning Computer Science Engineering from IIITBBSR
+- 💞️ I’m looking to collaborate on dev?
+- 📫 linkedin-Souharda Roy
